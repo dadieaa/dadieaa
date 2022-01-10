@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @dadieaa
+- 👀 a poor guy
